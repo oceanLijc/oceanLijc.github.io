@@ -1,1 +1,1 @@
-# oceanLijc.github.io
+# blog of mine Lijc
